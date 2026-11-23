@@ -1,0 +1,1 @@
+# Assignment-1-Industry-Talk-Academic-Writing-for-Creative-Thinking
